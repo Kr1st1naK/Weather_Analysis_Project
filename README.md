@@ -9,6 +9,6 @@ Key analyses include:
 
 Group Members:
 1. Kristina Kemoi 
-2. 
-3. 
-4. 
+2. Melissa Kimari
+3. Yahya Jivanji 
+4. Daniel Nyabuto 
